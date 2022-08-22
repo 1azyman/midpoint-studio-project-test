@@ -1,0 +1,1 @@
+# midpoint-studio-project-test
